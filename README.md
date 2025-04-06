@@ -1,55 +1,57 @@
 
-⋆.ೃ࿔*:･ ABOUT ME:
+⋆.ೃ࿔*:･ ᴀʙᴏᴜᴛ ᴍᴇ:
 
-🪼 HI U CAN CALL ME DOSO / IOYOMI ~ 
+🪼 ʜɪ ᴜ ᴄᴀɴ ᴄᴀʟʟ ᴍᴇ ᴅᴏsᴏ / ɪᴏʏᴏᴍɪ ~
 
-🪼 She/Her
+🪼 sʜᴇ / ʜᴇʀ
 
-𔓘 INFJ
+𔓘 ɪɴғᴊ
 
-𔓘 PLS DO NOT COPY MY SKINS WITHOUT MY PER
+𔓘 ᴘʟs ᴅᴏ ɴᴏᴛ ᴄᴏᴘʏ ᴍʏ sᴋɪɴs ᴡɪᴛʜᴏᴜᴛ ᴍʏ ᴘᴇʀ
 
-𔓘 I may not be talking to you but it's not because I'm uncomfortable with you, I'm shy, you can INT with me [[unless I'm DNI or AFK]] I'm usually OFFTAB so please W2I and u can freely C+H me:33
+𔓘 ɪ ᴍᴀʏ ɴᴏᴛ ʙᴇ ᴛᴀʟᴋɪɴɢ ᴛᴏ ʏᴏᴜ ʙᴜᴛ ɪᴛ's ɴᴏᴛ ʙᴇᴄᴀᴜsᴇ ɪ'ᴍ ᴜɴᴄᴏᴍғʏ ᴡɪᴛʜ ʏᴏᴜ, ɪ'ᴍ sʜʏ ~ ʏᴏᴜ ᴄᴀɴ ɪɴᴛ ᴡ/ ᴍᴇ [[ᴜɴʟᴇss ɪ'ᴍ ᴅɴɪ ᴏʀ ᴀғᴋ]] ɪ'ᴍ ᴜsᴜᴀʟʟʏ ᴏғғᴛᴀʙ sᴏ ᴘʟᴇᴀsᴇ ᴡ²ɪ ᴀɴᴅ ᴜ ᴄᴀɴ ғʀᴇᴇʟʏ ᴄ+ʜ ᴍᴇ :33
 
 ![ok](https://github.com/user-attachments/assets/4a1ff8bf-06a6-458d-9348-2caf146bf0d9)
 
-⊹₊⟡⋆; FANDOMS IM IN:
-𖦹 ᴏɴᴇ ᴘɪᴇᴄᴇ 
+⊹₊⟡⋆; ꜰᴀɴᴅᴏᴍs ɪ'ᴍ ɪɴ:
+
+𖦹 ᴏɴᴇ ᴘɪᴇᴄᴇ
 
 𖦹 ᴄʀᴋ + ᴄʀᴏʙ!!
 
-𖦹 KNY 
+𖦹 ᴋɴʏ
 
-𖦹 DANDADAN
+𖦹 ᴅᴀɴᴅᴀᴅᴀɴ
 
-𖦹 DOKI DOKI
+𖦹 ᴅᴏᴋɪ ᴅᴏᴋɪ
 
-𖦹 DEATH NOTE
+𖦹 ᴅᴇᴀᴛʜ ɴᴏᴛᴇ
 
-𖦹 CASTLEVANIA
+𖦹 ᴄᴀsᴛʟᴇᴠᴀɴɪᴀ
 
-𖦹 SKULLGIRLS
+𖦹 sᴋᴜʟʟɢɪʀʟs
 
 ![snd](https://github.com/user-attachments/assets/b396e6ed-2008-4460-9ebc-f92a32b90bae)
 
-⋆.ೃ࿔*:･ AREAS TO FIND ME ON PONY TOWN[PT]:
+⋆.ೃ࿔*:･ ᴀʀᴇᴀs ᴛᴏ ғɪɴᴅ ᴍᴇ ᴏɴ ᴘᴏɴʏ ᴛᴏᴡɴ [ᴘᴛ]:
 
-𔓘 CRK AREA
+𔓘 ᴄʀᴋ ᴀʀᴇᴀ
 
-𔓘 KNY AREA 
+𔓘 ᴋɴʏ ᴀʀᴇᴀ
 
-𔓘 ONE PIECE AREA
+𔓘 ᴏɴᴇ ᴘɪᴇᴄᴇ ᴀʀᴇᴀ
 
-𔓘 BEACH
+𔓘 ʙᴇᴀᴄʜ
 
 ![dame](https://github.com/user-attachments/assets/7f7be78a-a309-4da9-af34-c63c4df72c65)
 
 
-⊹₊⟡⋆; DNI !
+⊹₊⟡⋆; ᴅɴɪ !
 
-𖦹 ᴘʀᴏꜱʜɪᴘᴘᴇʀꜱ
+𖦹 ᴘʀᴏsʜɪᴘᴘᴇʀs
 
-𖦹 RACISTS / MUSLIMPHOBIA / PROSHIPPER / P@DO / MEAN PEOPLE / HH+HB FANS / LAWLU
+𖦹 ʀᴀᴄɪsᴛs / ᴍᴜsʟɪᴍᴘʜᴏʙɪᴀ / ᴘʀᴏsʜɪᴘ / ᴘ@ᴅᴏ / ᴍᴇᴀɴ ᴘᴇᴏᴘʟᴇ / ʜʜ+ʜʙ ғᴀɴs / ʟᴀᴡʟᴜ
 
-𖦹 ᴏᴠᴇʀ 23 / ᴜɴᴅᴇʀ 12 
+𖦹 ᴏᴠᴇʀ 23 / ᴜɴᴅᴇʀ 12
+
 
