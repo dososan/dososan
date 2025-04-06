@@ -1,5 +1,5 @@
 
-🪼⋆.ೃ࿔*:･ ABOUT ME:
+⋆.ೃ࿔*:･ ABOUT ME:
 
 🪼 HI U CAN CALL ME DOSO / IOYOMI ~ 
 
@@ -31,7 +31,7 @@
 
 ![snd](https://github.com/user-attachments/assets/b396e6ed-2008-4460-9ebc-f92a32b90bae)
 
-🪼⋆.ೃ࿔*:･ AREAS TO FIND ME ON PONY TOWN[PT]:
+⋆.ೃ࿔*:･ AREAS TO FIND ME ON PONY TOWN[PT]:
 
 𔓘 CRK AREA
 
