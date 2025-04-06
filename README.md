@@ -7,6 +7,7 @@
 
 𔓘 INFJ
 
+𔓘 PLS DO NOT COPY MY SKINS WITHOUT MY PER
 
 𔓘 I may not be talking to you but it's not because I'm uncomfortable with you, I'm shy, you can INT with me [[unless I'm DNI or AFK]] I'm usually OFFTAB so please W2I and u can freely C+H me:33
 
