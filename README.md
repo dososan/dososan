@@ -5,8 +5,7 @@
 
 
 
-⋆.ೃ࿔*:･ ᴀʙᴏᴜᴛ ᴍᴇ:<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/a9cc429d-50d7-4ca4-98d8-7fe71c9cdeae" />
-
+⋆.ೃ࿔*:･ ᴀʙᴏᴜᴛ ᴍᴇ: <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/34482e29-56bf-4326-831f-4f37f25b7afc" />
 
 𖦹 ʜɪ ᴜ ᴄᴀɴ ᴄᴀʟʟ ᴍᴇ ᴅᴏsᴏ / ɪᴏʏᴏᴍɪ ~
 
