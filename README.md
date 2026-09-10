@@ -1,11 +1,8 @@
 
-<img width="1200" height="675" alt="image" src="https://github.com/user-attachments/assets/c47049b3-c22a-41f8-b5ed-b89c6109a683" />
+<img width="735" height="514" alt="_" src="https://github.com/user-attachments/assets/0d5a6a10-aa28-4d2f-9204-791008e24199" />
 
 
-
-
-
-⋆.ೃ࿔*:･ ᴀʙᴏᴜᴛ ᴍᴇ: <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/34482e29-56bf-4326-831f-4f37f25b7afc" />
+⋆.ೃ࿔*:･ ᴀʙᴏᴜᴛ ᴍᴇ: 
 
 𖦹 ʜɪ ᴜ ᴄᴀɴ ᴄᴀʟʟ ᴍᴇ ᴅᴏsᴏ / ɪᴏʏᴏᴍɪ ~
 
