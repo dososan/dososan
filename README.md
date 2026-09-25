@@ -2,7 +2,7 @@
 <img width="735" height="514" alt="_" src="https://github.com/user-attachments/assets/0d5a6a10-aa28-4d2f-9204-791008e24199" />
 
 
-⋆.ೃ࿔*:･ ᴀʙᴏᴜᴛ ᴍᴇ: 
+⋆.ೃ࿔*:･ ᴬᴮᴼᵁᵀ ᴹᴱ: 
 
 𖦹 ᴴᵉˡˡᵒᵒ ᵘ ᶜᵃⁿ ᶜᵃˡˡ ᵐᵉ ᴰᵒˢᵒ-ᴵᵒʸᵒᵐⁱ
 
